@@ -1,0 +1,1 @@
+# bu mashqni tushunmadim
